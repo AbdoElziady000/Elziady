@@ -1,2 +1,0 @@
-# Elziady
-for online store
